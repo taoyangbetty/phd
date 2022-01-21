@@ -27,7 +27,7 @@ Nutrition, epidemiology, human microbiome, omics, (epi)genetics, clinical transl
 - Hongyu Han, Meixia Pan, Yang Tao, …, and Ranyi Liu. Early Enteral Nutrition is Associated with Faster Post-Esophagectomy Recovery in Chinese Esophageal Cancer Patients: A Retrospective Cohort Study. Nutrition and Cancer. 2018, 70 (2): 221-228. [[PubMed]](https://pubmed.ncbi.nlm.nih.gov/29313724/)
 - Caixia Zhang*, Yang Tao*, Ying Lu, Ming Xu. Dietary Fiber Consumption in Trimesters of Pregnancy. Proceedings of 13th China Nutrition Science Congress, Beijing, China. May 22nd-24th, 2017. Beijing: Chinese Nutrition Society. [Thesis]
 
-                                                        [Google Scholar >>](https://scholar.google.com/citations?hl=en&user=-YLtDL0AAAAJ)
+More on [Google Scholar >>](https://scholar.google.com/citations?hl=en&user=-YLtDL0AAAAJ)
 
 ### RESEARCH EXPERIENCE
 
