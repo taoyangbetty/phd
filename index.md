@@ -47,7 +47,7 @@ More on [Google Scholar >>](https://scholar.google.com/citations?hl=en&user=-YLt
 
 ### CONTACT
 
-- Email: taoyangbetty[@]outlook.com 
+- Email: taoyangbetty@outlook.com 
 - Cell: +86 178 1207 3001
 
 
